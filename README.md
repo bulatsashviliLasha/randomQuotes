@@ -1,1 +1,1 @@
-# [randomQuotes](https://lashareichert.github.io/randomQuotes/)
+# [randomQuotes](https://bulatsashvililasha.github.io/randomQuotes/)
